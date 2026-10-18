@@ -1,3 +1,3 @@
-The first bot was kinda crap.
+WE are making it to worlds in 2027, and WE are winning Einstein.
 
-But we're back and better than ever boys lock in
+But ofc that only starts with good preparation or smth
